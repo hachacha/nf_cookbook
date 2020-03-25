@@ -12,7 +12,7 @@ so obviously we gotta be sharin some virus
 
 for this thing i saw a recipe for indian food tht called for soaking cashews and raisins before blending them so that you can use them in the gravy
 
-### so
+### so!
 
 cashews & (green) raisins in equal parts in some water - soak for 30 mins
 beef
@@ -71,3 +71,12 @@ do that for like 1.5 hours until beef b tender
 this is a lot of instructions but it's not really that much work.
 
 eat it iwth some rice.
+
+
+----
+the main takeaway with this is that there are alternatives for the dairy/fat/thickening thing you put in a curry
+it can be this blended up nuts
+coconut milk
+yogurt
+shit-ton of ghee
+there must be a word for this
