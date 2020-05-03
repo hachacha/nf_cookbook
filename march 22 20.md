@@ -16,7 +16,3 @@ between the road and the railroadtrack
 chop it off
 bunch of pepper
 it's nice fiber-y i felt the health
-
-shrek commercials
-
-mm ogres
