@@ -24,7 +24,7 @@ that japanese crunchy rice topping
 
 put in ghee and then the rice. cook for a minute on high
 add the garlic and onions
-add the broth and celery and the dried pepper -- i used ancho
+add the broth to cover the rice and a little bit more and celery and the dried pepper -- i used ancho
 add s&p
 once it starts to boil turn it down to simmer and cover
 meanwhile
