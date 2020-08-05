@@ -1,6 +1,6 @@
 # july 31
 
-everything's hard and i keep getting secret drunk like now
+everything's hard
 virtually isolated and on gaurd 
 wanting to reach out in a million directions but each branch/yearning takes from the others and all end up failing
 i need to be pruned proper
