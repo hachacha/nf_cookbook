@@ -1,7 +1,7 @@
 # oct 30 2020
 
 i made a salad that's like mild in a nice way
-like youc ould eat it infinitely
+like you could eat it infinitely
 if you were just looking for an infinite jaw workout
 
 ## ingredients
