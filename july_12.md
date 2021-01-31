@@ -27,3 +27,8 @@ put in banana and wait to cool
 once cooler put in the yeast and stir
 leave bucket covered with a towel for a few days and stir every day
 transfer to demijohn taking out the banana  and have it bubble away :)
+
+### update
+
+this was bad add more sugar or banana it needs more body
+way too light. see the more updated recipe in august
