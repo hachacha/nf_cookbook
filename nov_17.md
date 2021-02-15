@@ -36,7 +36,7 @@ the butter/ghee
 ### beans
 
 soak them beans! i probably used 3 fistful of dried beans. i noticed remnants of burlap in there. that was cute.
-cover with an inch of water
+to cook cover with an inch of water
 put in garlic that's roughly chopped
 i used 3 peppers of the dried New mex chilis. chiles?
 squirted in some honey. i think i used a touch too much because when i tasted it it was pretty sweet but that disappated and melded pretty well. so give it like a tablespoon sized squirt or so? 3~ seconds
