@@ -9,3 +9,7 @@ https://bensadventuresinwinemaking.blogspot.com/2013/06/guest-post-on-lovely-gre
 
 bread
 https://www.kingarthurbaking.com/recipes/scaccia-recipe
+
+about 10:00 minutes in to this video
+https://www.youtube.com/watch?v=6gNPPBNkoLk&ab_channel=JustinWilsonSouthernProductsLLC
+he makes baked eggs with liquor in it . creme d menth, contreau, and some sort of bourbon
