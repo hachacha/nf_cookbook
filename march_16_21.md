@@ -5,7 +5,7 @@ i felt uneloquent when answering questions and i found my self to deflecting or 
 maybe wasn't the best idea to cook something you've never tried that's more of a technical challenge than whatever the other part of cooking is. straightforward foodstuff? trinities? smells?
 dunno. anyways. sweated beef is charming.
 
-happened upon banana leaf in giant eagle so stemed in those. outside. for covid.
+happened upon banana leaf in giant eagle so steamed in those. outside. for covid.
 
 
 ## ingredients

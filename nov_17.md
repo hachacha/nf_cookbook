@@ -13,7 +13,7 @@ spices are just the blends or mixes that (hot take) I feel exude laziness or req
 lemon pepper, garlic salt, slap ya mama, "grilled chicken seasoning" -- other blends that are some combination of onion powder, garlic powder, paprika. these spices were probably sitting in there for a while because they've turned in to sedimentary rocks. gotta beat them against your palm to loose a few granules.
 this was a basic meal. nothing fancy but i had fun cooking it. i love cooking in a strangers house with some limitations. it's how iron chef should be run anyways-- a shitty knife, a duck-shaped tiny cuttingboard, burners that are only on high no counterspace.
 
-saw on pbs they had something about "the three sisters" of "native" cooking. which is corn, beans, and squash. you get everything you need from that nutritionally. overall it's fitting. trying to hear myself better anyways. 
+saw on pbs they had something about "the three sisters" of "native" cooking. which is corn, beans, and squash. you get everything you need from that nutritionally. overall it's fitting. again, trying to hear myself better anyways. 
 
 ## ingredients
 

@@ -13,3 +13,9 @@ https://www.kingarthurbaking.com/recipes/scaccia-recipe
 about 10:00 minutes in to this video
 https://www.youtube.com/watch?v=6gNPPBNkoLk&ab_channel=JustinWilsonSouthernProductsLLC
 he makes baked eggs with liquor in it . creme d menth, contreau, and some sort of bourbon
+
+teal in a jar. 
+https://honest-food.net/teal-in-a-jar/
+it's for a small bird but i guess cooking anything in a jar. particulrly interested in using nopales or the cholla buds for this.
+
+https://en.wikipedia.org/wiki/Adelle_Davis
