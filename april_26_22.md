@@ -17,9 +17,6 @@ Going with the dandelion wine is the greens collected just to get some different
 They're bitter as hellso should be dealt with accordingly
 Usually I saute them with raisins or dates but I found a leftover bottle of carrot wine in the basement when I was looking for the carboy bung feeling manic and wanted to wncorporate
 
----Now the fridge is adding to the cacophony another unique reflex of the night. whirring the frion round and quivering all over in order to scare away the heat
-I have no idea how a fridge works. It does definitely take up space in the dark differently than smells or coughs or burps or barks
-
 
 
 ## ingredients
