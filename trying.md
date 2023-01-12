@@ -19,3 +19,5 @@ https://honest-food.net/teal-in-a-jar/
 it's for a small bird but i guess cooking anything in a jar. particulrly interested in using nopales or the cholla buds for this.
 
 https://en.wikipedia.org/wiki/Adelle_Davis
+
+https://www.teaforturmeric.com/easy-slow-cooker-nihari-beef-stew/#ingredients
