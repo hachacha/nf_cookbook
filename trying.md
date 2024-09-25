@@ -21,3 +21,18 @@ it's for a small bird but i guess cooking anything in a jar. particulrly interes
 https://en.wikipedia.org/wiki/Adelle_Davis
 
 https://www.teaforturmeric.com/easy-slow-cooker-nihari-beef-stew/#ingredients
+
+injera starter
+https://teffco.com/traditional-injera/starter/
+with teff
+^ i wonder if this starter and the other starter for my sourdough would get along. experimenting with this and making other baked goods with different starters... considering also using the mash or something from wine like after the bucket is fermenting a bit. 
+it'd be good to do with more wild yeast than the wine yeast packets... can'tget much fresh now thugh. i should call the bulk produce place.
+
+
+https://vnexpress.net/mam-ca-loc-chung-thit-trung-4578568.html
+
+
+
+--- this
+https://backyardforager.com/naturally-effervescent-queen-annes-lace-tonic-recipe/
+but with watermelon juice and rue.
